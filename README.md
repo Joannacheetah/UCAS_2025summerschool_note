@@ -1,0 +1,2 @@
+# UCAS_2025summerschool_note
+2025国科大成长计划暑期学校讲座笔记
